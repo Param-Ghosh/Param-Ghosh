@@ -7,7 +7,7 @@ Email Me 👉 ✉️ **parambrotaghosh@gmail.com** For Collaboration/Project or 
 - 🌱 **I’m currently learning:** Ethical hacking, network.
 - 🤔 **I’m looking for help with:** networking.
 - 💬 **Ask me about:** Collaboration, Tech Support
-- 📫 **How to reach me:** parammbrotaghosh@gmail.com
+- 📫 **How to reach me:** parambrotaghosh@gmail.com
 - 😄 **Pronouns:** Param.
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
